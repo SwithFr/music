@@ -17,3 +17,4 @@
 # Playlists
 
 - Fefolet - https://www.youtube.com/playlist?list=PLRWXYupd_c18-VQg2ZnGDIdVNZka7w-ol
+- Ho7so - https://www.youtube.com/playlist?list=PLxfxKYG7Aj5PMQ2VYPB2oEhHnYkC3n04e
